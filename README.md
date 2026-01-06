@@ -1,4 +1,4 @@
-# ReGLOSS – ビリラビリラ (轟はじめ SOLO)
+# ReGLOSS – ビリラビリラ (轟はじめ SOLO) - Birilla Birilla (Todoroki Hajime SOLO)
 
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
